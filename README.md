@@ -1,1 +1,1 @@
-# dekopinda-banyuwangi
+# dekopinda-karanganyar
